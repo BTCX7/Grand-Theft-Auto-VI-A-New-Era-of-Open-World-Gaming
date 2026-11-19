@@ -18,4 +18,4 @@ The expectations are huge, but Rockstar has spent years building a reputation fo
 
 **Vice City is waiting. The next chapter of Grand Theft Auto is coming.**
 
-#GTA6 #GTAVI #RockstarGames #ViceCity #Gaming #OpenWorl
+#GTA6 #GTAVI #RockstarGames #ViceCity #Gaming #OpenWor
